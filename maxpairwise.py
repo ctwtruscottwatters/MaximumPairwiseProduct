@@ -3,6 +3,8 @@ import random as r
 
 """ Charles Truscott Byron Bay NSW 2481
 
+
+Might walk to the Suffolk pub tonight to show everyone my face and hit on a chick to get my first girlfriend since 2009. 600 days and nights in public and venues in Byron Bay and Suffolk Park, 600 days in public showing off my face, as the White House, UK Parliament, NSA, MI6 and US Secret Service can see every photo, text and video private and public such as Gmail and Facebook messages made since 2010, each selfie and piece of foreign citizen life history and sovereign Australian institutional history, such as responses by the Australian Parliament, responses by and quality of Australian hospitals and mental health facilities, human trafficking rate of Byron Bay, corruption advisories for foreign territories by the US State Department or UN workers families arbitrarily detained or instirutionalised or blackmailed on national television or organ harvested beneath the face. The institutional history I have described may be preserved for 70 years of the sovereign Australian institutional practices by the NSA, as photos of my face and my life history will. 600 days in public from today
 Certificate in Computer Science and Python (Massachusetts Institute of Technology)
 Certificate in Python (TAFE NSW, Australia)
 School Certificate NSW (Byron Bay High School Class of 2012)
